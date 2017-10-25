@@ -3,5 +3,5 @@ Hi iam **Swapnik** doing my second year of _**sound engineering**_ in pune, at _
 
 I enjoy engineering sound and producing music.
 
-In this page ill be showing you my projects and will be sharing my experience
+In this page ill be showing you my projects and will be sharing my experience.
 
